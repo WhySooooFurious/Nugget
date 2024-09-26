@@ -7,4 +7,4 @@ Thank you to all the defectors, including but not limited to Me, Aznbur and othe
 
 Sorry to the duck guy
 
-Looks like he released it. This repo will soon go to the public archive now.
+Looks like he released it the real version now. Will still keep releasing any new betas.
