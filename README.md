@@ -1,5 +1,5 @@
 # Nugget
-Leaked Nugget IPA, Includes instructions, Payback.
+Leaked Nugget builds, Includes instructions, Payback.
 
 What kind of name is leminlimez tf
 
